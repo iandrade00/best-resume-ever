@@ -65,9 +65,8 @@ https://github.com/iandrade00/best-resume-ever/assets/137753190/66717486-0728-45
 
 
 
+<br> [this link](https://youtu.be/VUm83DYNpWA) </br>
 
-How to install and use video:
-[this link](https://youtu.be/VUm83DYNpWA)
 
 
 
