@@ -64,7 +64,7 @@
 
 
 
-
+Setup walkthrough video
 https://github.com/iandrade00/best-resume-ever/assets/137753190/66717486-0728-452f-b008-97532934d7ba
 
 
